@@ -8,6 +8,6 @@ I'm just a laid-back person. If you want to buy me a coffee, don't hesitate to m
 
 ## Contact
 
-- **Discord Server**: [discord.gg/fristy](https://dc.fristy.net)
+- **Discord Server**: [discord.gg/fristy](https://discord.gg/fristy)
 - **Discord Username**: [@fristyxd](https://discord.com/users/1014549805608992901)
 - **Mail**: [iletisim@fristy.net](mailto:iletisim@fristy.net)
